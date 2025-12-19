@@ -6,6 +6,6 @@
                                   \__,_/_/\__/_/  \__,_/ |___/_/\____/_/\___/\__/
 ```
 
-somewhat autictic
+somewhat autistic
 
 bad at everything ✌️
